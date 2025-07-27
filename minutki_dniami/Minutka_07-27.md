@@ -10,6 +10,6 @@ W czynnym uzależnieniu nasze żądze i tęsknoty kazały nam gonić za seksem, 
 
 - Modlę się, abym wszystkiego szukał w moim wnętrzu.
 - Modlę się, abym odwracał mój negatywizm, nie bał się być szczęśliwy.
-h Modlę się, abym demontował wewnętrzne bariery, jakie wzniosłem przeciw Twej miłości, Boże.
+- Modlę się, abym demontował wewnętrzne bariery, jakie wzniosłem przeciw Twej miłości, Boże.
 
 Tu i teraz: Przestaję gonić i polować na szczęście poza mną. Zatrzymuję się i demontując wewnętrzne bariery - znajduję swoje prawdziwe „ja”. Nie brak mi niczego, abym już teraz mógł być szczęśliwy.
