@@ -12,4 +12,4 @@ Szczur wrzucony do beczki z wodą, z której nie ma wyjścia, tonie po trzech kw
 - Modlę się, abym nie uciekał przed właściwym rozwiązaniem: dzieleniem się sobą.
 - Modlę się, abyś - w każdej pułapce - Siłą Wyższa podsuwał mi pasujący klucz.
 
-Tu i teraz: Biorę do rąk klucz SLAA, który otwiera kajdany mojego uzależnienia i przekręcam go w dobrą stronę. 
+Tu i teraz: Biorę do rąk klucz SLAA, który otwiera kajdany mojego uzależnienia i przekręcam go w dobrą stronę.
