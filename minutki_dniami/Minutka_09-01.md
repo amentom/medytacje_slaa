@@ -1,8 +1,15 @@
-01 września
 
-Wzbraniając sobie rozkoszy,
-zakuwacie swoje szczęście w lochach waszego jestestwa. (Kahlil Gibran)
- W dawnym życiu goniliłem za doświadczeniami potęgującymi nienasycenie. Trans seksualny i miłosny haj brały mnie w niewolę ograbiając mnie z innych zdrowych rodzajów przyjemności. W innych sytuacjach zniewalała mnie anoreksja. W końcu intensywność mojej choroby - poczucie odrzucenia i zdrady, wstydu i samotności, pustki i daremności życia - obracała się przeciwko mnie samemu i w odruchu ratowania życia powracałem do SLAA. Wspólnota pozwalała mi postawić właściwe granice, nie barykady przed życie. To tutaj słyszę, by otworzyć się na zdrowe rozkosze. Otwierając moje blokady, zranienia i tajemnice, uwalniam swoje szczęście z lochów, w które je zakuła moja choroba. Odpowiadam za to, jak dziś korzystamy z życia. Dzięki nowym, nieseksualizującym więziom zyskuję całą paletę wzmacniających i radosnych doznań. Jeśli uzdrawiam dawny związek partnerski lub jeśli buduję nowy, dodaje się on do innych rozkoszy. Jeśli żyję w pojedynkę, to w otwarciu na przyjemności i możliwość zdrowego stałego związku. Moją trzeźwość mierzę dziś pogodą ducha.
- Czy, otwierając w SLAA lochy choroby, otwieram się na zdrowe dobro, a może dalej bronię sobie przyjemności? Czy pozwalam sobie czuć wdzięczność za dobre zmysłowe, emocjonalne i duchowe - doznania i uczę się je przyjmować?
- Modlę się, by nie bronienić sobie rozkoszy. Modlę się, aby móc odkryć moją seksualność i bogactwo doznań w stałym związku. Modlę się o odwagę by przyjąć to, co Ty chcesz mi dać, Siła Wyższo.
- Tu i teraz: Otwieram lochy mojego uzależnienia, by móc przyjąć zdrowe rozkosze. Poznając swoje ograniczenia, uczę się korzystać z dobrych doznań, jakie niesie mi życie.
+# 1 września
+
+> Wzbraniając sobie rozkoszy, zakuwacie swoje szczęście w lochach waszego jestestwa. (Kahlil Gibran)
+
+W dawnym życiu goniliłem za doświadczeniami potęgującymi nienasycenie. Trans seksualny i miłosny haj brały mnie w niewolę ograbiając mnie z innych zdrowych rodzajów przyjemności. W innych sytuacjach zniewalała mnie anoreksja. W końcu intensywność mojej choroby - poczucie odrzucenia i zdrady, wstydu i samotności, pustki i daremności życia - obracała się przeciwko mnie samemu i w odruchu ratowania życia powracałem do SLAA. Wspólnota pozwalała mi postawić właściwe granice, nie barykady przed życie. To tutaj słyszę, by otworzyć się na zdrowe rozkosze. Otwierając moje blokady, zranienia i tajemnice, uwalniam swoje szczęście z lochów, w które je zakuła moja choroba. Odpowiadam za to, jak dziś korzystamy z życia. Dzięki nowym, nieseksualizującym więziom zyskuję całą paletę wzmacniających i radosnych doznań. Jeśli uzdrawiam dawny związek partnerski lub jeśli buduję nowy, dodaje się on do innych rozkoszy. Jeśli żyję w pojedynkę, to w otwarciu na przyjemności i możliwość zdrowego stałego związku. Moją trzeźwość mierzę dziś pogodą ducha.
+
+- Czy, otwierając w SLAA lochy choroby, otwieram się na zdrowe dobro, a może dalej bronię sobie przyjemności?
+- Czy pozwalam sobie czuć wdzięczność za dobre zmysłowe, emocjonalne i duchowe - doznania i uczę się je przyjmować?
+
+- Modlę się, by nie bronienić sobie rozkoszy.
+- Modlę się, aby móc odkryć moją seksualność i bogactwo doznań w stałym związku.
+- Modlę się o odwagę by przyjąć to, co Ty chcesz mi dać, Siła Wyższo.
+
+Tu i teraz: Otwieram lochy mojego uzależnienia, by móc przyjąć zdrowe rozkosze. Poznając swoje ograniczenia, uczę się korzystać z dobrych doznań, jakie niesie mi życie.
