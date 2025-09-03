@@ -1,8 +1,15 @@
-04 września
 
-Nieumiejętność słuchania to najtragiczniejszy rodzaj głuchoty.
-(anonim)
- Prawdziwe słuchanie wiąże się z ryzykiem. To ciągła weryfikacja siebie - motor naszej przemiany. W czynnej erotomanii musieliśmy słuchać jej podszeptów, pokus i wymagań. Choroba mamiła nas iluzją szczęścia i przekonywała, że jest wszystkim czego nam trzeba. Zdawało się nam, że bez ciągłych dawek seksu i miłości nie przeżyjemy i nie poradzimy sobie. Ogłuszani eksplozjami haju byliśmy nieczuli na subtelniejsze i prawdziwe głosy - sumienia, współczucia i miłości. Dopiero w SLAA, zaczynamy - może pierwszy raz w życiu - nasłuchiwać sercem: SŁYSZEĆ nieubłagany głos prawdy. Dzięki mityngom nasza duchowa głuchota mija i budzimy się do trzeźwego i wartościowego życia. Mądrość SLAA każe nam jednak stale mieć się na baczności, bowiem pod osłoną długiej abstynencji, skromności, pewności siebie, uporu lub uprzedzeń, duchowa głuchota chętnie powraca. Na szczęście mając program nie jesteśmy wobec niej bezbronni. Każdy mityng to dla nas lustro sumienia i prawdy - to niepowtarzalna lekcja słuchania sercem.
- Czy unikam postaw, które prowadzą mnie do duchowej głuchoty, a może wiem wszystko najlepiej lub nic mnie nie obchodzi? Czy jestem wdzięczny za lekcje słuchania sercem, co kosztuje mnie tyle wysiłku i tak sowicie wynagradza?
- Modlę się, aby moje duchowe ucho nie ogłuchło znowu - abym dzielił się i pozostawał otwarty. Modlę się, abym przestrajał mój aparat nasłuchowy z pasma intelektu na pasmo sumienia i serca. Modlę się, abyś Ty, Boże, trafiał do mnie słowami innych SLAA.
- Tu i teraz: Rozwijam w sobie antenę sumienia i przestrajam mój „aparat nasłuchowy” na pasmo serca. Kiedy słucham świadectw innych SLAA, mój duchowy „odbiornik” ciągle zyskuje na wrażliwości.
+# 4 września
+
+> Nieumiejętność słuchania to najtragiczniejszy rodzaj głuchoty. (anonim)
+
+Prawdziwe słuchanie wiąże się z ryzykiem. To ciągła weryfikacja siebie - motor naszej przemiany. W czynnym uzależnieniu od seksu i miłości musieliśmy słuchać jej podszeptów, pokus i wymagań. Choroba mamiła nas iluzją szczęścia i przekonywała, że jest wszystkim czego nam trzeba. Zdawało się nam, że bez ciągłych dawek seksu i miłości nie przeżyjemy i nie poradzimy sobie. Ogłuszani eksplozjami haju byliśmy nieczuli na subtelniejsze i prawdziwe głosy - sumienia, współczucia i miłości. Dopiero w SLAA, zaczynamy - może pierwszy raz w życiu - nasłuchiwać sercem: SŁYSZEĆ nieubłagany głos prawdy. Dzięki mityngom nasza duchowa głuchota mija i budzimy się do trzeźwego i wartościowego życia. Mądrość SLAA każe nam jednak stale mieć się na baczności, bowiem pod osłoną długiej abstynencji, skromności, pewności siebie, uporu lub uprzedzeń, duchowa głuchota chętnie powraca. Na szczęście mając program nie jesteśmy wobec niej bezbronni. Każdy mityng to dla nas lustro sumienia i prawdy - to niepowtarzalna lekcja słuchania sercem.
+
+- Czy unikam postaw, które prowadzą mnie do duchowej głuchoty, a może wiem wszystko najlepiej lub nic mnie nie obchodzi?
+- Czy jestem wdzięczny za lekcje słuchania sercem, co kosztuje mnie tyle wysiłku i tak sowicie wynagradza?
+
+- Modlę się, aby moje duchowe ucho nie ogłuchło znowu - abym dzielił się i pozostawał otwarty.
+- Modlę się, abym przestrajał mój aparat nasłuchowy z pasma intelektu na pasmo sumienia i serca.
+- Modlę się, abyś Ty, Boże, trafiał do mnie słowami innych SLAA.
+
+Tu i teraz: Rozwijam w sobie antenę sumienia i przestrajam mój „aparat nasłuchowy” na pasmo serca. Kiedy słucham świadectw innych SLAA, mój duchowy „odbiornik” ciągle zyskuje na wrażliwości.
