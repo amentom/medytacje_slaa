@@ -1,8 +1,15 @@
-10 września
 
-Doskonała i prawdziwa jest wola tylko w tym,
-kto wyzbył się własnej woli i cały powierzył się woli Bożej. (mistrz Eckhart)
- Koło bez osi nie przydaje się na nic; jest tylko abstrakcyjnym tworem intelektu. W SLAA mówimy, że osią programu jest Krok Trzeci: powierzenie siebie i własnego życia woli Boga. Wszystko obraca się wokół tej osi, na niej nasza Wspólnota toczy się ku duchowej pełni. Mając tak solidną oś, możemy poruszać się w każdym terenie. Mamy ją zawsze, kiedy dostosowujemy własną wolę do woli Siły Wyższej. Krok Trzeci jest dla nas niezbędny dlatego, że spaczona przez erotomanię oś naszej świadomości bardzo łatwo zbacza z kursu i łamie się na wybojach pokus. Samowolnie podejmowane decyzje, wiodły nas na bezdroża, a im dłużej to trwało, tym bardziej musieliśmy pobłądzić. Wiążąc się jednak na nowo z wolą Boga, a odwracając się od dawnego życia, znajdujemy dzisiaj Przewodnika, który nie błądzi. Uczymy się ufać Mu, poznajemy Jego głos i wspólnie, w grupie, idziemy za Nim. Jeśli nasza wola jest zgodna z wolą, Boga, cóż nam grozi?
- Czy oddaję bez reszty moją wolę i życie w Boże ręce, a może zostawiam jeszcze jakąś furtkę samowoli? Czy jestem wdzięczny SLAA za oś, która jedzie prosto i nie łamie się na wybojach?
- Modlę się, aby Krok Trzeci był osią mojego życia i gasił we mnie zapędy samowoli. Modlę się, abym - oddawszy się Tobie, Boże - nie błąkał się więcej po bezdrożach upadku. Modlę się, abym w każdej sprawie mówił: „Bądź wola Twoja, a nie moja, Panie.”
- Tu i teraz: Stawiając Krok Trzeci, zyskuję oś, która jedzie prosto i nie łamie się na wybojach. Nawet jeśli uginam się pod naporem pokus, postanawiam nie ulegać im ani się nie załamywać.
+# 10 września
+
+> Doskonała i prawdziwa jest wola tylko w tym, kto wyzbył się własnej woli i cały powierzył się woli Bożej. (mistrz Eckhart)
+
+Koło bez osi nie przydaje się na nic; jest tylko abstrakcyjnym tworem intelektu. W SLAA mówimy, że osią programu jest Krok Trzeci: powierzenie siebie i własnego życia woli Boga. Wszystko obraca się wokół tej osi, na niej nasza Wspólnota toczy się ku duchowej pełni. Mając tak solidną oś, możemy poruszać się w każdym terenie. Mamy ją zawsze, kiedy dostosowujemy własną wolę do woli Siły Wyższej. Krok Trzeci jest dla nas niezbędny dlatego, że spaczona przez uzależnienie od seksu i miłości oś naszej świadomości bardzo łatwo zbacza z kursu i łamie się na wybojach pokus. Samowolnie podejmowane decyzje, wiodły nas na bezdroża, a im dłużej to trwało, tym bardziej musieliśmy pobłądzić. Wiążąc się jednak na nowo z wolą Boga, a odwracając się od dawnego życia, znajdujemy dzisiaj Przewodnika, który nie błądzi. Uczymy się ufać Mu, poznajemy Jego głos i wspólnie, w grupie, idziemy za Nim. Jeśli nasza wola jest zgodna z wolą, Boga, cóż nam grozi?
+
+- Czy oddaję bez reszty moją wolę i życie w Boże ręce, a może zostawiam jeszcze jakąś furtkę samowoli?
+- Czy jestem wdzięczny SLAA za oś, która jedzie prosto i nie łamie się na wybojach?
+
+- Modlę się, aby Krok Trzeci był osią mojego życia i gasił we mnie zapędy samowoli.
+- Modlę się, abym - oddawszy się Tobie, Boże - nie błąkał się więcej po bezdrożach upadku.
+- Modlę się, abym w każdej sprawie mówił: „Bądź wola Twoja, a nie moja, Panie.”
+
+Tu i teraz: Stawiając Krok Trzeci, zyskuję oś, która jedzie prosto i nie łamie się na wybojach. Nawet jeśli uginam się pod naporem pokus, postanawiam nie ulegać im ani się nie załamywać.
