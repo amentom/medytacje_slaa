@@ -1,7 +1,15 @@
-11 września
 
-Jest w mojej mocy pełnić wolę Boga lub jej nie pełnić; służyć Mu, lub nie. (Lew Tołstoj)
- Cnota możliwa jest tylko tam, gdzie jest wybór. Początkowo były to dla mnie ciągłe wybory między uzależnieniem a odstawieniem. Wyznaczające abstynencję granice moich zachowań wiązały mnie z procesem zdrowienia. Trzymałam się ich dzień po dniu, dzieląc się sobą i starając się fundować sobie dobre, kojące rzeczy. Na mityngach poznawałam samą siebie: swój nałóg, duchowe bankructwo oraz wolę Siły Wyższej wobec mnie. Stopniowo moje wybory zaczynały przebiegać między pełnieniem i nie pełnieniem Jej woli, co każdego dnia decydowało o zdrowieniu lub nawrocie. Służymy Sile Wyższej, kiedy - dzieląc się doświadczeniem, wewnętrzną przemianą i wytrwałością na tej drodze - służymy sobie nawzajem. Służymy Sile Wyższej kiedy żyjąc według Dwunastu Kroków i Dwunastu Tradycji - stale coś wnosimy do wspólnego dobra i dobra całego świata. Służymy Sile Wyższej, kiedy nie odwracamy się od zdrowienia, od cierpiących ludzi i od SLAA - by zachować to, co uzyskaliśmy i nie pozbawiać świata dobra, które byliśmy w mocy stworzyć. W każdej chwili ten wybór należy do nas.
- Czy wybieram to, co służy mojemu wzrostowi i pomaga innym, a może nie uważam tego za rozstrzygające? Czy jestem wdzięczna, że życie sprowadza się dziś dla mnie do pełnienia woli Siły Wyższej?
- Modlę się, abym nie zaprzepaściła żadnego dobra jakie mogę stworzyć. Modlę się, abym służąc dodawała do mojej wartości i do wartości świata jego nowe cząstki. Modlę się, abym - pełniąc Twoją wolę, Siło Wyższa - pozwalała Ci spełniać ją we mnie.
- Tu i teraz: Dzięki wyborom zwiększam chłonność na łaski Siły Wyższej. Dzięki wyborom zdrowieję i mogę służyć zdrowieniu innych. Dzięki wyborom dodaję cząstkę dobra do dobra świata.
+# 11 września
+
+> Jest w mojej mocy pełnić wolę Boga lub jej nie pełnić; służyć Mu, lub nie. (Lew Tołstoj)
+
+Cnota możliwa jest tylko tam, gdzie jest wybór. Początkowo były to dla mnie ciągłe wybory między uzależnieniem a odstawieniem. Wyznaczające abstynencję granice moich zachowań wiązały mnie z procesem zdrowienia. Trzymałam się ich dzień po dniu, dzieląc się sobą i starając się fundować sobie dobre, kojące rzeczy. Na mityngach poznawałam samą siebie: swój nałóg, duchowe bankructwo oraz wolę Siły Wyższej wobec mnie. Stopniowo moje wybory zaczynały przebiegać między pełnieniem i nie pełnieniem Jej woli, co każdego dnia decydowało o zdrowieniu lub nawrocie. Służymy Sile Wyższej, kiedy - dzieląc się doświadczeniem, wewnętrzną przemianą i wytrwałością na tej drodze - służymy sobie nawzajem. Służymy Sile Wyższej kiedy żyjąc według Dwunastu Kroków i Dwunastu Tradycji - stale coś wnosimy do wspólnego dobra i dobra całego świata. Służymy Sile Wyższej, kiedy nie odwracamy się od zdrowienia, od cierpiących ludzi i od SLAA - by zachować to, co uzyskaliśmy i nie pozbawiać świata dobra, które byliśmy w mocy stworzyć. W każdej chwili ten wybór należy do nas.
+
+- Czy wybieram to, co służy mojemu wzrostowi i pomaga innym, a może nie uważam tego za rozstrzygające?
+- Czy jestem wdzięczna, że życie sprowadza się dziś dla mnie do pełnienia woli Siły Wyższej?
+
+- Modlę się, abym nie zaprzepaściła żadnego dobra jakie mogę stworzyć.
+- Modlę się, abym służąc dodawała do mojej wartości i do wartości świata jego nowe cząstki.
+- Modlę się, abym - pełniąc Twoją wolę, Siło Wyższa - pozwalała Ci spełniać ją we mnie.
+
+Tu i teraz: Dzięki wyborom zwiększam chłonność na łaski Siły Wyższej. Dzięki wyborom zdrowieję i mogę służyć zdrowieniu innych. Dzięki wyborom dodaję cząstkę dobra do dobra świata.
