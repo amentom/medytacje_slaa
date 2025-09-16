@@ -1,8 +1,14 @@
-17 września
+# 17 września
 
-Niepowodzenia nie są klęską, lecz nieuniknioną fazą nauki. Dzięki nim znam tysiąc metod, które nie skutkują.
-(Thomas Alva Edison)
- Uczenie się na błędach możliwe jest wtedy, gdy sami ponosimy ich konsekwencje. Jakże chętnie spychaliśmy odpowiedzialność za siebie na innych! Osłanialiśmy się przed skutkami uzależnienia „parasolem” stałego związku lub nie wiązania się z nikim; ideą „nowej moralności” i „wyzwolenia seksualnego” lub parawanem religijności; „niepokojem geograficznym” lub maską pozorów i kłamstw. Próbowaliśmy odzyskać kontrolę nad sobą i własnym życiem zmieniając rodzaje zachowań, wzorce uzaleznienia lub jedne nałogi na inne. Jednak aby nasze błędy mogły zaowocować, nasz parasol ochronny musiał w pewnym momencie zawieść. Często wspominamy ten szok: „to była chwila, gdy mojego życia dotknęła ręka Boża”. I jeśli ze swojej strony poddawaliśmy się na tyle, by z pokorą się Jej uchwycić - by oddać całe uzależnienie od seksu i miłości - przychodziła do nas trzeźwość i ocalenie. Na mityngach otwierało się nasze ucho, oko i język. Poznawaliśmy, że żadne formy kontroli nie skutkują. Przyjmując program SLAA, znajdowaliśmy metodę, która rzeczywiście działa.
- Czy z pokorą chwytam w SLAA rękę Siły Wyższej, a może nadal chcę tylko unikać konsekwencji? Czy jestem wdzięczna za dawne niepowodzenia, które dzisiaj kierują mnie na właściwą drogę?
- Modlę się, aby SLAA otwierało moje ucho, oko i język. Modlę się, abym nie puszczała Twej ręki, Siło Wyższa. Modlę się, aby niepowodzenia nie były dla mnie klęską, lecz nieuniknioną fazą nauki.
- Tu i teraz: Pozwalam, by niepowodzenia, wpadki i bezsilność odsyłały mnie do SLAA. Trzymając się programu - metody, która naprawdę skutkuje - składam całe moje życie i wolę w ręce Siły Wyższej.
+> Niepowodzenia nie są klęską, lecz nieuniknioną fazą nauki. Dzięki nim znam tysiąc metod, które nie skutkują. (Thomas Alva Edison)
+
+Uczenie się na błędach możliwe jest wtedy, gdy sami ponosimy ich konsekwencje. Jakże chętnie spychaliśmy odpowiedzialność za siebie na innych! Osłanialiśmy się przed skutkami uzależnienia „parasolem” stałego związku lub nie wiązania się z nikim; ideą „nowej moralności” i „wyzwolenia seksualnego” lub parawanem religijności; „niepokojem geograficznym” lub maską pozorów i kłamstw. Próbowaliśmy odzyskać kontrolę nad sobą i własnym życiem zmieniając rodzaje zachowań, wzorce uzaleznienia lub jedne nałogi na inne. Jednak aby nasze błędy mogły zaowocować, nasz parasol ochronny musiał w pewnym momencie zawieść. Często wspominamy ten szok: „to była chwila, gdy mojego życia dotknęła ręka Boża”. I jeśli ze swojej strony poddawaliśmy się na tyle, by z pokorą się Jej uchwycić - by oddać całe uzależnienie od seksu i miłości - przychodziła do nas trzeźwość i ocalenie. Na mityngach otwierało się nasze ucho, oko i język. Poznawaliśmy, że żadne formy kontroli nie skutkują. Przyjmując program SLAA, znajdowaliśmy metodę, która rzeczywiście działa.
+
+- Czy z pokorą chwytam w SLAA rękę Siły Wyższej, a może nadal chcę tylko unikać konsekwencji?
+- Czy jestem wdzięczna za dawne niepowodzenia, które dzisiaj kierują mnie na właściwą drogę?
+
+- Modlę się, aby SLAA otwierało moje ucho, oko i język.
+- Modlę się, abym nie puszczała Twej ręki, Siło Wyższa.
+- Modlę się, aby niepowodzenia nie były dla mnie klęską, lecz nieuniknioną fazą nauki.
+
+Tu i teraz: Pozwalam, by niepowodzenia, wpadki i bezsilność odsyłały mnie do SLAA. Trzymając się programu - metody, która naprawdę skutkuje - składam całe moje życie i wolę w ręce Siły Wyższej.
