@@ -1,8 +1,16 @@
-22 września
 
-Rozumowanie jest dla modlitwy jak wielkie drwa włożone nagle do ogniska. (św. Teresa z Avila)
- Modlitwa jest jak ognisko rozpalane w mrokach naszej choroby, chłodzie odstawienia czy pod rozgwieżdżonym niebem trzeźwości. Jej ogień ogrzewa nas, koi nerwy i rozjaśnia ciemność. Modląc się, możemy najpierw prosić Boga o natchnienie - o iskrę co rozpali w nas święty płomień oddania. Prosimy wielokrotnie powtarzając, jakbyśmy pocierali krzesiwo. Potem już tylko dokładamy szczapy tęsknoty i pragnienia wiecznego dobra. Na bok odsuwamy mokre belki intelektu aby wpierw obeschły z wody rozumowania. Płonąc adoracją, możemy dorzucać szyszki intencji i prosić, by objęła je i przepaliła wola Boża. Pieszczeni przez płomienne języki modlitwy możemy poczuć, że jesteśmy w niej i krzesiwem, i chrustem, i tym, który do ognia dokłada. Jej żar, stygnąc powoli, zostaje w nas na najbliższe godziny. Modląc się i medytując regularnie, nie dopuszczamy do wygaśnięcia w nas Bożego pieca, jakim jesteśmy. Nasz zapał wznieca gorliwość w innych i rozsiewa iskry zdrowienia.
- Czy, modląc się, pozwalam Bogu być we mnie Iskrą, i Ogniem, i Palaczem, a może gaszę Jego święty płomień mokrymi belkami rozumowania? Czy jestem wdzięczny, że to ja mam podtrzymywać ogień w Bożym piecu, jakim jestem?
- Modlę się, abym był iskrą, z której rozniecasz we mnie ogień oddania, Boże. Modlę się, abym był chrustem, który trawisz w swoich płomieniach, o Panie. Modlę się, abym był Twoim piecem, mój Miły, co trzyma żar duchowej przemiany i rozsiewa jej iskry.
+# 22 września
+
+> Rozumowanie jest dla modlitwy jak wielkie drwa włożone nagle do ogniska. (św. Teresa z Avila)
+
+Modlitwa jest jak ognisko rozpalane w mrokach naszej choroby, chłodzie odstawienia czy pod rozgwieżdżonym niebem trzeźwości. Jej ogień ogrzewa nas, koi nerwy i rozjaśnia ciemność. Modląc się, możemy najpierw prosić Boga o natchnienie - o iskrę co rozpali w nas święty płomień oddania. Prosimy wielokrotnie powtarzając, jakbyśmy pocierali krzesiwo. Potem już tylko dokładamy szczapy tęsknoty i pragnienia wiecznego dobra. Na bok odsuwamy mokre belki intelektu aby wpierw obeschły z wody rozumowania. Płonąc adoracją, możemy dorzucać szyszki intencji i prosić, by objęła je i przepaliła wola Boża. Pieszczeni przez płomienne języki modlitwy możemy poczuć, że jesteśmy w niej i krzesiwem, i chrustem, i tym, który do ognia dokłada. Jej żar, stygnąc powoli, zostaje w nas na najbliższe godziny. Modląc się i medytując regularnie, nie dopuszczamy do wygaśnięcia w nas Bożego pieca, jakim jesteśmy. Nasz zapał wznieca gorliwość w innych i rozsiewa iskry zdrowienia.
+
+- Czy, modląc się, pozwalam Bogu być we mnie Iskrą, i Ogniem, i Palaczem, a może gaszę Jego święty płomień mokrymi belkami rozumowania?
+- Czy jestem wdzięczny, że to ja mam podtrzymywać ogień w Bożym piecu, jakim jestem?
+
+- Modlę się, abym był iskrą, z której rozniecasz we mnie ogień oddania, Boże.
+- Modlę się, abym był chrustem, który trawisz w swoich płomieniach, o Panie.
+- Modlę się, abym był Twoim piecem, mój Miły, co trzyma żar duchowej przemiany i rozsiewa jej iskry.
+
 Tu i teraz: Modląc się, rozniecam w sobie ogień, który mnie grzeje i rozjaśnia
 mrok. Utrzymując żar i zapał, palę w Bożym piecu, jakim jestem i rozsiewam wokół iskry duchowej przemiany.
