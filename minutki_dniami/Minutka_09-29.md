@@ -1,8 +1,15 @@
-29 września
 
-Tylko wtedy możemy zdrowo korzystać z życia, jeśli nie boimy się czegoś utracić. (Anthony de Mello)
- Życie naznaczone miłosną i seksualną obsesją niosło nam ciąg gratyfikacji, które wydawały się nam tak ważne, jak powietrze czy pokarm. Jakże baliśmy się je utracić! Bez nich - myśleliśmy - cóż by z nas pozostało? Jakże martwe i nudne byłoby życie... Pustka, którą te gratyfikacje wypełniały, zdawała się być nie do przejścia; wejście w nią przypominało śmierć. Pamiętamy ten stan z okresu odstawienia. Istotnie, w SLAA przeszliśmy śmierć swojego uzależnienia, rodząc się do nowego, trzeźwego i przebudzonego duchowo życia. Umierając - kawałek po kawałku tracąc dotychczasową osobowość - pożądliwość, zakłamanie, samowolę i wady - w prawdzie o sobie znajdowaliśmy ocalenie i wolność. Jakiej jeszcze straty mielibyśmy się obawiać, skoro straciliśmy niemal wszystko, czym było nasze życie i w czym nas więziło, i skoro okazało się to tak zbawienne? Dzisiaj, nie bojąc się, że coś utracimy lub czegoś nie zaznamy, możemy w zdrowy sposób korzystać z dobrodziejstw życia.
- Czy rezygnuję z zachowań i obsesji, które mnie więziły, a może wciąż boję się własnej pustki? Czy jestem wdzięczna za utracone dawne życie, dzięki któremu mogę dziś bez lęku korzystać z dobrodziejstw nowego?
-Modlę się, abym się nie bała żadnej koniecznej utraty. Modlę się, abym oddawała
-Tobie, Siło Wyższa uzależnieniowy haj i gratyfikacje i cieszyła się nową wolnością. Modlę się, abym zachowała dziś łączność z sobą, z innymi SLAA, i z Tobą, Siło Wyższa.
- Tu i teraz: Od kiedy, tracąc chorobę, odzyskuję siebie w Sile Wyższej, a Siłę Wyższą w sobie, nie martwię się o nic, co musiałabym jeszcze utracić. Wolna od lęków, otwieram się dziś na zdrowe dobrodziejstwa życia.
+# 29 września
+
+> Tylko wtedy możemy zdrowo korzystać z życia, jeśli nie boimy się czegoś utracić. (Anthony de Mello)
+
+Życie naznaczone miłosną i seksualną obsesją niosło nam ciąg gratyfikacji, które wydawały się nam tak ważne, jak powietrze czy pokarm. Jakże baliśmy się je utracić! Bez nich - myśleliśmy - cóż by z nas pozostało? Jakże martwe i nudne byłoby życie... Pustka, którą te gratyfikacje wypełniały, zdawała się być nie do przejścia; wejście w nią przypominało śmierć. Pamiętamy ten stan z okresu odstawienia. Istotnie, w SLAA przeszliśmy śmierć swojego uzależnienia, rodząc się do nowego, trzeźwego i przebudzonego duchowo życia. Umierając - kawałek po kawałku tracąc dotychczasową osobowość - pożądliwość, zakłamanie, samowolę i wady - w prawdzie o sobie znajdowaliśmy ocalenie i wolność. Jakiej jeszcze straty mielibyśmy się obawiać, skoro straciliśmy niemal wszystko, czym było nasze życie i w czym nas więziło, i skoro okazało się to tak zbawienne? Dzisiaj, nie bojąc się, że coś utracimy lub czegoś nie zaznamy, możemy w zdrowy sposób korzystać z dobrodziejstw życia.
+
+- Czy rezygnuję z zachowań i obsesji, które mnie więziły, a może wciąż boję się własnej pustki?
+- Czy jestem wdzięczna za utracone dawne życie, dzięki któremu mogę dziś bez lęku korzystać z dobrodziejstw nowego?
+
+- Modlę się, abym się nie bała żadnej koniecznej utraty.
+- Modlę się, abym oddawała Tobie, Siło Wyższa uzależnieniowy haj i gratyfikacje i cieszyła się nową wolnością.
+- Modlę się, abym zachowała dziś łączność z sobą, z innymi SLAA, i z Tobą, Siło Wyższa.
+
+Tu i teraz: Od kiedy, tracąc chorobę, odzyskuję siebie w Sile Wyższej, a Siłę Wyższą w sobie, nie martwię się o nic, co musiałabym jeszcze utracić. Wolna od lęków, otwieram się dziś na zdrowe dobrodziejstwa życia.
