@@ -1,8 +1,15 @@
-12 październik
 
-a
-Kamień, który przytłacza wschodzącą roślinę, sprawia tylko, że głębiej zapuszcza ona korzenie. (anonim)
- Użalając się: „ci, co zdrowieją w stałym związku, mają lepiej” lub „łatwiej jest tym, co żyją w pojedynkę”, ulegamy złudzeniu, że powrót do zdrowia ułatwiłaby nam inna sytuacja. Tymczasem nie mamy łatwiejszej ani krótszej drogi niż ta, jaką właśnie mamy. Partnerom, związek może utrudniać - a często nawet blokować - ustąpienie obsesji; nieraz nie mogą oni ruszyć z miejsca dopóki się nie rozpadnie lub nie podejmą separacji. Osobom żyjącym w pojedynkę, choć może łatwiej przejść odstawienie, trudniej z kolei nie załamać się pod ciężarem osamotnienia i pustki; bywa więc, że „ratują się” szybko związkiem, toną na nowo, może i bezpowrotnie. Każdy z nas ma w SLAA swój ciężar do niesienia. Nikt nam nie obiecywał, że rozstanie z erotomanią będzie szybkie, łatwe i bezbolesne. Jednak z perspektywy przebytej drogi widać, że to właśnie ów przygniatający nas i długo dźwigany ciężar, pomaga nam najbardziej. Dzięki niemu możemy głębiej zakorzenić się w trzeźwości - głębiej wrosnąć w glebę Wspólnoty, duchowości i programu SLAA.
- Czy - niosąc ciężar mojej sytuacji - głębiej zakorzeniam się w SLAA, a może kombinuję, jak by tu ją szybko coś zmienić? Czy jestem wdzięczny za trudności, które zmuszają mnie do stawiania kroków?
- Modlę się, abym z pogodą ducha przyjmował trudy przemiany. Modlę się, abym wrósłszy w trzeźwą glebę SLAA - nie chciał się znowu gdzieś przesadzać. Modlę się, abym mój ciężar i bieżące utrapienia powierzał Tobie, Panie.
- Tu i teraz: Marny jest trening bez dużych obciążeń. Pozwalam, by ciężar, jaki nakłada na mnie zdrowienie, głębiej osadzał mnie w SLAA. Pielęgnuję wdzięczność za moje życie i nie szukam „lżejszej” sytuacji.
+# 12 października
+
+> Kamień, który przytłacza wschodzącą roślinę, sprawia tylko, że głębiej zapuszcza ona korzenie. (anonim)
+
+Użalając się: „ci, co zdrowieją w stałym związku, mają lepiej” lub „łatwiej jest tym, co żyją w pojedynkę”, ulegamy złudzeniu, że powrót do zdrowia ułatwiłaby nam inna sytuacja. Tymczasem nie mamy łatwiejszej ani krótszej drogi niż ta, jaką właśnie mamy. Partnerom, związek może utrudniać - a często nawet blokować - ustąpienie obsesji; nieraz nie mogą oni ruszyć z miejsca dopóki się nie rozpadnie lub nie podejmą separacji. Osobom żyjącym w pojedynkę, choć może łatwiej przejść odstawienie, trudniej z kolei nie załamać się pod ciężarem osamotnienia i pustki; bywa więc, że „ratują się” szybko związkiem, toną na nowo, może i bezpowrotnie. Każdy z nas ma w SLAA swój ciężar do niesienia. Nikt nam nie obiecywał, że rozstanie z uzależnieniem od seksu i miłości będzie szybkie, łatwe i bezbolesne. Jednak z perspektywy przebytej drogi widać, że to właśnie ów przygniatający nas i długo dźwigany ciężar, pomaga nam najbardziej. Dzięki niemu możemy głębiej zakorzenić się w trzeźwości - głębiej wrosnąć w glebę Wspólnoty, duchowości i programu SLAA.
+
+- Czy niosąc ciężar mojej sytuacji głębiej zakorzeniam się w SLAA, a może kombinuję, jak by tu ją szybko zmienić?
+- Czy jestem wdzięczny za trudności, które zmuszają mnie do stawiania kroków?
+
+- Modlę się, abym z pogodą ducha przyjmował trudy przemiany.
+- Modlę się, abym wrósłszy w trzeźwą glebę SLAA - nie chciał się znowu gdzieś przesadzać.
+- Modlę się, abym mój ciężar i bieżące utrapienia powierzał Tobie, Panie.
+
+Tu i teraz: Marny jest trening bez dużych obciążeń. Pozwalam, by ciężar, jaki nakłada na mnie zdrowienie, głębiej osadzał mnie w SLAA. Pielęgnuję wdzięczność za moje życie i nie szukam „lżejszej” sytuacji.
