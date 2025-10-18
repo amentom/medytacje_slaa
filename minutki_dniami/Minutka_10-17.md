@@ -1,8 +1,15 @@
-17 październik
 
-a
-Kiedy pamięć i uczucia zamknięte są w lochu, miłość zakorzenia się na samym dnie piekła. (William Blake)
- Nosiliśmy w sobie zablokowane, zamknięte jak w hermetycznej kapsule i wrzucone do lochu, bolesne przeżycia z przeszłości. Tajemnice czynnego uzależnienia przykrywały i tłumiły braki i nadużycia z nieraz najwcześniejszego dzieciństwa. Haj, który je znieczulał, pozwalał nam przez pewien czas przeżyć z dala od tego horroru, dopóki sam nie zaczął stawać się piekłem. Traciliśmy siebie na rzecz swoich obsesji, obietków, zachowań i fantazji. Nasze prawdziwe, delikatne i duchowe „ja” tkwiło zamurowane w lochu, a seks i „miłości”, za którymi goniliśmy, miały je uciszać. ... W SLAA wspólnie otwieramy ten loch i, wydobywając swoje tajemnice na wierzch, wprowadzamy wgłąb leczące światło. Prowadzeni przez nie, docieramy do miejsc, gdzie utkwiły wzorce naszej choroby - otwieramy kapsułę z piekłem dzieciństwa. Wraca nam pamięć zdarzeń, uczuć i doznań, a wszystko, o czym zaczynamy mówić, przestaje nami rządzić.
- Czy, wyposażona w światło SLAA, wglądam w moje dawne piekło i zaczynam mówić, a może tak manewruję programem, by je pominąć? Czy jestem wdzięczna, że nie mogę już odejść ze Wspólnoty, nie tracąc odnalezionej siebie?
- Modlę się, abym odnalazła moje zranione, delikatne i duchowe „ja”. Modlę się, abym, uwalniając dawne zmory, odbierała im moc rządzenia moim życiem. Modlę się, abyś Ty, Siło Wyższa, pomagała mi wydobyć miłość uwięzioną na dnie piekła.
- Tu i teraz: To, o czym zaczynam mówić, przestaje mną rządzić. Docierając do moich lochów, otwieram uwięzione w nich przeżycia. Koję je w akceptacji, zrozumieniu i miłości, jaką otacza mnie SLAA.
+# 17 października
+
+> Kiedy pamięć i uczucia zamknięte są w lochu, miłość zakorzenia się na samym dnie piekła. (William Blake)
+
+Nosiliśmy w sobie zablokowane, zamknięte jak w hermetycznej kapsule i wrzucone do lochu, bolesne przeżycia z przeszłości. Tajemnice czynnego uzależnienia przykrywały i tłumiły braki i nadużycia z nieraz najwcześniejszego dzieciństwa. Haj, który je znieczulał, pozwalał nam przez pewien czas przeżyć z dala od tego horroru, dopóki sam nie zaczął stawać się piekłem. Traciliśmy siebie na rzecz swoich obsesji, obietków, zachowań i fantazji. Nasze prawdziwe, delikatne i duchowe „ja” tkwiło zamurowane w lochu, a seks i „miłości”, za którymi goniliśmy, miały je uciszać. ... W SLAA wspólnie otwieramy ten loch i wydobywając swoje tajemnice na wierzch, wprowadzamy wgłąb leczące światło. Prowadzeni przez nie, docieramy do miejsc, gdzie utkwiły wzorce naszej choroby - otwieramy kapsułę z piekłem dzieciństwa. Wraca nam pamięć zdarzeń, uczuć i doznań, a wszystko, o czym zaczynamy mówić, przestaje nami rządzić.
+
+- Czy, wyposażona w światło SLAA, wglądam w moje dawne piekło i zaczynam mówić, a może tak manewruję programem, by je pominąć?
+- Czy jestem wdzięczna, że nie mogę już odejść ze Wspólnoty, nie tracąc odnalezionej siebie?
+
+- Modlę się, abym odnalazła moje zranione, delikatne i duchowe „ja”.
+- Modlę się, abym, uwalniając dawne zmory, odbierała im moc rządzenia moim życiem.
+- Modlę się, abyś Ty, Siło Wyższa, pomagała mi wydobyć miłość uwięzioną na dnie piekła.
+
+Tu i teraz: To, o czym zaczynam mówić, przestaje mną rządzić. Docierając do moich lochów, otwieram uwięzione w nich przeżycia. Koję je w akceptacji, zrozumieniu i miłości, jaką otacza mnie SLAA.
