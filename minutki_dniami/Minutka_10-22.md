@@ -1,8 +1,15 @@
-22 październik
 
-a
-Kiedy serce płacze nad tym, co utraciło, duch cieszy się z tego, co znalazł. (aforyzm sufijski)
- Opłakiwanie tego, co „tracimy” odstawiając erotomanię, nie jest użalaniem się. Rozstanie z nałogiem musi boleć, ale ten ból toruje drogę przyszłej radości. Gdy nasze serce z żalem gubi dawny haj i gratyfikacje, duch nasz z błogością znajduje życie przewyższające wszystko, co znaliśmy. Poznajemy, jak to jest objąć w posiadanie królestwo własnej duszy, niszczonej dotąd przez uzależnienie od seksu i miłości. Odnajdujemy bliską więź z sobą, z Bogiem i z innymi ludźmi. Przestajemy się bać stałego związku ani też nie musimy go mieć, by czuć się kimś spełnionym i wartościowym. Stajemy się ufni i wrażliwi, lecz nie naiwni. Znajdujemy pokorę. Uwalniamy się od egoizmu i ról ofiary lub prześladowcy. Dzięki naszym doświadczeniom stajemy się lekiem dla tych, którzy wciąż cierpią. Koimy dawne zranienia, zyskując zdolność trzeźwego współodczuwania. Odkrywamy, czym jest prawdziwa miłość, gdyż otwiera się w nas jej Boże źródło. Stajemy się błogosławieństwem dla siebie, innych i świata, a świadomość ta nie wbija nas z powrotem w pychę.
- Czy, żegnając chorobę, cieszę się nowym, odkupionym życiem, a może próbuję jeszcze zatrzymać sobie jakieś jej gratyfikacje? Czy jestem wdzięczny za ból po tej stracie, który daje mi dziś tyle zysków i radości?
- Modlę się, abym grzebiąc moją erotomanię nie wskakiwał za nią do grobu. Modlę się, abym z morza żalu za chorobą wyławiał dziś odkupione, nowe życie. Modlę się, abym miał odwagę tracić po kolei wszystko, co mnie oddziela od Ciebie, Boże.
- Tu i teraz: Choć moje serce płacze nad tym, co utraciło, mój duch cieszy się tym, co znajduje: nowym, odkupionym i trzeźwym życiem. Dzielę się tym prawdziwym, zdolnym do miłości, sobą.
+# 22 października
+
+> Kiedy serce płacze nad tym, co utraciło, duch cieszy się z tego, co znalazł. (aforyzm sufijski)
+
+Opłakiwanie tego, co „tracimy” odstawiając uzależnienie od seksu i miłości, nie jest użalaniem się. Rozstanie z nałogiem musi boleć, ale ten ból toruje drogę przyszłej radości. Gdy nasze serce z żalem gubi dawny haj i gratyfikacje, duch nasz z błogością znajduje życie przewyższające wszystko, co znaliśmy. Poznajemy, jak to jest objąć w posiadanie królestwo własnej duszy, niszczonej dotąd przez uzależnienie od seksu i miłości. Odnajdujemy bliską więź z sobą, z Bogiem i z innymi ludźmi. Przestajemy się bać stałego związku ani też nie musimy go mieć, by czuć się kimś spełnionym i wartościowym. Stajemy się ufni i wrażliwi, lecz nie naiwni. Znajdujemy pokorę. Uwalniamy się od egoizmu i ról ofiary lub prześladowcy. Dzięki naszym doświadczeniom stajemy się lekiem dla tych, którzy wciąż cierpią. Koimy dawne zranienia, zyskując zdolność trzeźwego współodczuwania. Odkrywamy, czym jest prawdziwa miłość, gdyż otwiera się w nas jej Boże źródło. Stajemy się błogosławieństwem dla siebie, innych i świata, a świadomość ta nie wbija nas z powrotem w pychę.
+
+- Czy, żegnając chorobę, cieszę się nowym, odkupionym życiem, a może próbuję jeszcze zatrzymać sobie jakieś jej gratyfikacje?
+- Czy jestem wdzięczny za ból po tej stracie, który daje mi dziś tyle zysków i radości?
+
+- Modlę się, abym grzebiąc moje uzależnienie od seksu i miłości nie wskakiwał za nią do grobu.
+- Modlę się, abym z morza żalu za chorobą wyławiał dziś odkupione, nowe życie.
+- Modlę się, abym miał odwagę tracić po kolei wszystko, co mnie oddziela od Ciebie, Boże.
+
+Tu i teraz: Choć moje serce płacze nad tym, co utraciło, mój duch cieszy się tym, co znajduje: nowym, odkupionym i trzeźwym życiem. Dzielę się tym prawdziwym, zdolnym do miłości, sobą.
