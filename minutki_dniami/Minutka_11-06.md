@@ -1,8 +1,15 @@
-06 listopad
 
-a
-Z moich decyzji mogę zbudować sobie więzienie, ale też mogę nimi wykuć sobie drogę do wolności. (anonim)
- Dopóki tkwiliśmy w jakiejś formie uzależnienia lub anoreksji, nie mogliśmy decydować o swoich zachowaniach, myślach i emocjach w sposób wolny. Decydowała o nas choroba. Posługiwała się ona także wyborami nie związanymi bezpośrednio ze sferą seksu i uczuć. Takie z pozoru nieważne, oderwane i odległe od pożądań decyzje pozwalały nam okrążać wcześniejsze postanowienia i zwykle wiodły do nawrotów. Dopiero pełne odstawienie przywraca nam zdolność decydowania o sobie. Proces ten wymaga jednak czasu. Dlatego nieraz powtarzamy: „Żadnych poważnych zmian i trudnych decyzji w pierwszym roku. A i później - ostrożnie.” Jeśli trwamy w abstynencji i narzędziami programu doskonalimy siebie, Siła Wyższa usuwa naszą obsesję i pomaga nam omijać pułapki nałogu. Dzięki właściwym wyborom powoli uzyskujemy prawidłowy obraz siebie i rzeczywistości, trzeźwość seksualną i uczuciową, radość, równowagę zmysłów, pokój ducha i wolność.
- Czy moje dzisiejsze wybory prowadzą mnie do wolności, a może jedynie do nowego zniewolenia? Czy jestem wdzięczna SLAA za szansę trudnych decyzji, które mnie ratują?
- Modlę się, abym, właściwie wybierając, ocalała i budowała siebie. Modlę się, abym była zdolna do każdej niepopularnej decyzji, jakiej mi trzeba do duchowego wzrostu. Modlę się, aby moje wybory potwierdzały to, co Ty wybrałaś dla mnie, Siło Wyższa.
- Tu i teraz: Korzystam z sugestii SLAA, by podejmować właściwe decyzje. Dzięki nim omijam pułapki nałogu i zyskuję prawidłowy obraz siebie i świata. Trwam w abstynencji i doskonalę siebie, a Siła Wyższa usuwa moją obsesję.
+# 6 listopada
+
+> Z moich decyzji mogę zbudować sobie więzienie, ale też mogę nimi wykuć sobie drogę do wolności. (anonim)
+
+Dopóki tkwiliśmy w jakiejś formie uzależnienia lub anoreksji, nie mogliśmy decydować o swoich zachowaniach, myślach i emocjach w sposób wolny. Decydowała o nas choroba. Posługiwała się ona także wyborami nie związanymi bezpośrednio ze sferą seksu i uczuć. Takie z pozoru nieważne, oderwane i odległe od pożądań decyzje pozwalały nam okrążać wcześniejsze postanowienia i zwykle wiodły do nawrotów. Dopiero pełne odstawienie przywraca nam zdolność decydowania o sobie. Proces ten wymaga jednak czasu. Dlatego nieraz powtarzamy: „Żadnych poważnych zmian i trudnych decyzji w pierwszym roku. A i później - ostrożnie.” Jeśli trwamy w abstynencji i narzędziami programu doskonalimy siebie, Siła Wyższa usuwa naszą obsesję i pomaga nam omijać pułapki nałogu. Dzięki właściwym wyborom powoli uzyskujemy prawidłowy obraz siebie i rzeczywistości, trzeźwość seksualną i uczuciową, radość, równowagę zmysłów, pokój ducha i wolność.
+
+- Czy moje dzisiejsze wybory prowadzą mnie do wolności, a może jedynie do nowego zniewolenia?
+- Czy jestem wdzięczna SLAA za szansę trudnych decyzji, które mnie ratują?
+
+- Modlę się, abym, właściwie wybierając, ocalała i budowała siebie.
+- Modlę się, abym była zdolna do każdej niepopularnej decyzji, jakiej mi trzeba do duchowego wzrostu.
+- Modlę się, aby moje wybory potwierdzały to, co Ty wybrałaś dla mnie, Siło Wyższa.
+
+Tu i teraz: Korzystam z sugestii SLAA, by podejmować właściwe decyzje. Dzięki nim omijam pułapki nałogu i zyskuję prawidłowy obraz siebie i świata. Trwam w abstynencji i doskonalę siebie, a Siła Wyższa usuwa moją obsesję.
