@@ -1,8 +1,15 @@
-11 listopad
 
-a
-Bądź czysty dlatego, że kochasz tak żyć; nie dlatego, że boisz się żyć inaczej. (br. Roger Schutz)
- Seksualno-uczuciowa trzeźwość to nie kajdany. To przywilej. Jak dobrze jest mieć umysł wolny od obsesji - móc być skupionym i dysponować czasem, którym dysponowała choroba! Jak dobrze mieć serce wolne od żądz, lubieżności i egoizmu zdolne kochać zamiast uciekać za każdymi nogami na ulicy! Jak dobrze być wolnym od lęków, poczucia winy i wstydu - nie narażać swojej opinii, pracy, rodziny ani życia! Jak dobrze mieć godność i wybór - rozporządzać sobą, a nie być rozporządzanym przez destrukcyjne zachowania, miłosne obsesje i seksualną żądzę! Jak dobrze jest móc dawać miłość, a nie żądać jej lub o nią skamlać! Jak dobrze jest pozostawać wiernym: sobie, Bogu i stałemu partnerowi - czuć, że seks to świętość dana mi w opiekę! Jak dobrze jest budować Wspólnotę rozumiejących ludzi, którzy wzajemnie wspierają się w w trzeźwości! Jak dobrze mieć bogate życie duchowe, zamiast czuć się wygnanym, pustym, osamotnionym i zdanym na zasilanie erotomanią! Jak dobrze jest zmieniać siebie, a nie innych i żyć w ten sposób nie ze strachu, a z umiłowania tej wspólnej drogi.
- Czy zachowuję trzeźwość i doskonalę się, bo kocham tak żyć, a może nadal działam tylko ze strachu przed nawrotem? Czy jestem dziś wdzięczny za życie, które kiedyś uważałem za kajdany?
- Modlę się, abym był trzeźwy z miłości do prawego, uduchowionego życia. Modlę się, abym wyrażał wdzięczność za ocalenia, dzieląc się tą nadzieją. Modlę się, abym pozostawał wierny: sobie, stałemu partnerowi i Tobie, mój Boże.
- Tu i teraz: Prosząc Boga o łaskę wdzięczności, przyjmuję moje nowe życie i uczę się je kochać. Jak dobrze jest móc wybierać je i pragnąć z miłości zamiast czuć się do niego zmuszonym!
+# 11 listopada
+
+> Bądź czysty dlatego, że kochasz tak żyć; nie dlatego, że boisz się żyć inaczej. (br. Roger Schutz)
+
+Seksualno-uczuciowa trzeźwość to nie kajdany. To przywilej. Jak dobrze jest mieć umysł wolny od obsesji - móc być skupionym i dysponować czasem, którym dysponowała choroba! Jak dobrze mieć serce wolne od żądz, lubieżności i egoizmu zdolne kochać zamiast uciekać za każdymi nogami na ulicy! Jak dobrze być wolnym od lęków, poczucia winy i wstydu - nie narażać swojej opinii, pracy, rodziny ani życia! Jak dobrze mieć godność i wybór - rozporządzać sobą, a nie być rozporządzanym przez destrukcyjne zachowania, miłosne obsesje i seksualną żądzę! Jak dobrze jest móc dawać miłość, a nie żądać jej lub o nią skamlać! Jak dobrze jest pozostawać wiernym: sobie, Bogu i stałemu partnerowi - czuć, że seks to świętość dana mi w opiekę! Jak dobrze jest budować Wspólnotę rozumiejących ludzi, którzy wzajemnie wspierają się w trzeźwości! Jak dobrze mieć bogate życie duchowe, zamiast czuć się wygnanym, pustym, osamotnionym i zdanym na zasilanie uzależnieniem od seksu i miłości! Jak dobrze jest zmieniać siebie, a nie innych i żyć w ten sposób nie ze strachu, a z umiłowania tej wspólnej drogi.
+
+- Czy zachowuję trzeźwość i doskonalę się, bo kocham tak żyć, a może nadal działam tylko ze strachu przed nawrotem?
+- Czy jestem dziś wdzięczny za życie, które kiedyś uważałem za kajdany?
+
+- Modlę się, abym był trzeźwy z miłości do prawego, uduchowionego życia.
+- Modlę się, abym wyrażał wdzięczność za ocalenia, dzieląc się tą nadzieją.
+- Modlę się, abym pozostawał wierny: sobie, stałemu partnerowi i Tobie, mój Boże.
+
+Tu i teraz: Prosząc Boga o łaskę wdzięczności, przyjmuję moje nowe życie i uczę się je kochać. Jak dobrze jest móc wybierać je i pragnąć z miłości zamiast czuć się do niego zmuszonym!
