@@ -1,8 +1,15 @@
-17 listopad
 
-a
-Ci, którzy wnoszą światło w życie innych, nie mogą sami się przed nim osłonić. (Sir James M. Barrie)
- Chcieć duchowych dóbr nie będzie egoizmem, jeśli będziemy się nimi dzielić. Duchowe łaski, gdy są prawdziwe, nie pozwalają nam chować ich dla siebie, bowiem jest wśród nich wdzięczność. Przekazujemy je zatem innym, co zwiększa w naszym sercu przestrzeń na nie. ... Chcieć duchowych dóbr nie będzie pychą, jeśli nie będziemy czynić z nich potem własnej zasługi. Duchowe łaski, gdy są prawdziwe, nie mogą wynosić nas do własnej chwały, bowiem zawierają skromność i pokorę. Nie będziemy się zatem wywyższać, lecz służyć. ... Chcieć duchowych dóbr nie będzie nadużyciem, jeśli nie zechcemy rozdawać światła według rozdzielnika naszej samowoli. Duchowe łaski nie mogą podlegać spekulacji, gdyż są za darmo i znaczą obfitość. Niewyczerpane, sączą się w każde wzgardzone miejsce duszy. Im hojniej więc przekazujemy otrzymane światło, tym bardziej ogarnia ono nasze serca i nie możemy się już przed nim osłonić.
- Czy pozwalam, by łaski Boże przelewały się ze mnie, a może buduję tamę, by je posiąść? Czy jestem wdzięczny, że nie mogę zatrzymać strumienia światła, ani się przed nimi osłonić?
- Modlę się, abym przekazywał duchowe światło, które dostaję we wspólnocie. Modlę się, abym nie czynił z tego własnej zasługi i nie stosował własnego rozdzielnika. Modlę się, aby przepływał przeze mnie porywający strumień Twoich łask, Panie.
- Tu i teraz: Chować duchowe łaski dla siebie, to osłaniać się przed nimi. Wnoszę otrzymane we wspólnocie światło w życie innych zdrowiejących. Pozwalam, by niosło mnie do oceanu miłości Boga.
+# 17 listopada
+
+> Ci, którzy wnoszą światło w życie innych, nie mogą sami się przed nim osłonić. (Sir James M. Barrie)
+
+Chcieć duchowych dóbr nie będzie egoizmem, jeśli będziemy się nimi dzielić. Duchowe łaski, gdy są prawdziwe, nie pozwalają nam chować ich dla siebie, bowiem jest wśród nich wdzięczność. Przekazujemy je zatem innym, co zwiększa w naszym sercu przestrzeń na nie. ... Chcieć duchowych dóbr nie będzie pychą, jeśli nie będziemy czynić z nich potem własnej zasługi. Duchowe łaski, gdy są prawdziwe, nie mogą wynosić nas do własnej chwały, bowiem zawierają skromność i pokorę. Nie będziemy się zatem wywyższać, lecz służyć. ... Chcieć duchowych dóbr nie będzie nadużyciem, jeśli nie zechcemy rozdawać światła według rozdzielnika naszej samowoli. Duchowe łaski nie mogą podlegać spekulacji, gdyż są za darmo i znaczą obfitość. Niewyczerpane, sączą się w każde wzgardzone miejsce duszy. Im hojniej więc przekazujemy otrzymane światło, tym bardziej ogarnia ono nasze serca i nie możemy się już przed nim osłonić.
+
+- Czy pozwalam, by łaski Boże przelewały się ze mnie, a może buduję tamę, by je posiąść?
+- Czy jestem wdzięczny, że nie mogę zatrzymać strumienia światła, ani się przed nimi osłonić?
+
+- Modlę się, abym przekazywał duchowe światło, które dostaję we wspólnocie.
+- Modlę się, abym nie czynił z tego własnej zasługi i nie stosował własnego rozdzielnika.
+- Modlę się, aby przepływał przeze mnie porywający strumień Twoich łask, Panie.
+
+Tu i teraz: Chować duchowe łaski dla siebie, to osłaniać się przed nimi. Wnoszę otrzymane we wspólnocie światło w życie innych zdrowiejących. Pozwalam, by niosło mnie do oceanu miłości Boga.
