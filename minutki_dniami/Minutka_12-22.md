@@ -1,6 +1,11 @@
-22 grudnia
 
-Tyle ma człowiek przykrości i niepokojów, ile sam ich ku sobie przyciąga. (Tomasz a Kempis)
- Gdy coś mi odbiera pokój ducha, pozwalam sobie na doświadczanie tego. Nie bronię się, ani nie atakuję. Nie uciekam. Przyjmuję to i trwam w tym doświadczeniu. Wiem, że każdy lęk, cierpienie, pożądanie czy smutek - miną. Stany te, choć początkowo przerażają mnie lub wywołują uruchomienie, są tak naprawdę niczym przechodnie na ulicy - mijają. Zgadzam się na to, że przychodzą, robię im miejsce, pozwalam przejść. Próbując je odepchnąć bądź zmienić, tylko bardziej je do siebie przyciągam. Kiedy je przyjmuję obserwując co się ze mną dzieje i wspierając się modlitwą, pozwalam im odejść i doświadczam spokoju. Obecność Siły Wyższej przynosi mi ukojenie, wsparcie i otuchę. Dziś stosuję tę „bierną” postawę by umieć przyjąć uciążliwe stany ducha. Czy pozwalam uciążliwościom przeminąć? Czy może zaraz chcę za wszelką cenę uciec przed nimi? Czy czuję wdzięczność, że godząc się na ich chwilową obecność, znajduję pogodny stan, który przyciąga błogosławieństwa?
- Modlę się, aby umieć doświadczać to, co zakłóca moje dobre samopoczucie. Modlę się, aby przyjąć postawę akceptacji, która przyciąga Twoje dary, Panie.
- Tu i teraz: To, co niesie mi przykrości i niepokoje, traktuję jak przechodniów na ulicy. Zmieniam swoją postawę, a nie uczucia, których doświadczam.
+# 22 grudnia
+
+> Tyle ma człowiek przykrości i niepokojów, ile sam ich ku sobie przyciąga. (Tomasz a Kempis)
+
+Gdy coś mi odbiera pokój ducha, pozwalam sobie na doświadczanie tego. Nie bronię się, ani nie atakuję. Nie uciekam. Przyjmuję to i trwam w tym doświadczeniu. Wiem, że każdy lęk, cierpienie, pożądanie czy smutek - miną. Stany te, choć początkowo przerażają mnie lub wywołują uruchomienie, są tak naprawdę niczym przechodnie na ulicy - mijają. Zgadzam się na to, że przychodzą, robię im miejsce, pozwalam przejść. Próbując je odepchnąć bądź zmienić, tylko bardziej je do siebie przyciągam. Kiedy je przyjmuję obserwując co się ze mną dzieje i wspierając się modlitwą, pozwalam im odejść i doświadczam spokoju. Obecność Siły Wyższej przynosi mi ukojenie, wsparcie i otuchę. Dziś stosuję tę „bierną” postawę by umieć przyjąć uciążliwe stany ducha. Czy pozwalam uciążliwościom przeminąć? Czy może zaraz chcę za wszelką cenę uciec przed nimi? Czy czuję wdzięczność, że godząc się na ich chwilową obecność, znajduję pogodny stan, który przyciąga błogosławieństwa?
+
+- Modlę się, aby umieć doświadczać to, co zakłóca moje dobre samopoczucie.
+- Modlę się, aby przyjąć postawę akceptacji, która przyciąga Twoje dary, Panie.
+
+Tu i teraz: To, co niesie mi przykrości i niepokoje, traktuję jak przechodniów na ulicy. Zmieniam swoją postawę, a nie uczucia, których doświadczam.
