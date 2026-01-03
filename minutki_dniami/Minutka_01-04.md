@@ -1,7 +1,15 @@
-04 stycznia
 
-Jeśli nie skruszysz swych kajdanów póki żyjesz, jakąż nadzieję możesz mieć na to po śmierci? (Kabir)
- Przebudzenie duchowe to rezygnacja z własnej wszechmocy. Na ogół proces ten dokonuje się powoli, drogą kolejnych wyłomów w murach naszej twierdzy, zza których staramy się władać światem. Może jednak przyjść do nas jako nagła, druzgocząca iluminacja, zostawiając nas odmienionych i - o dziwo - pełnych spokoju i wiary. Niezależnie od tego w jaki sposób przychodzi do nas przebudzenie, jest ono początkiem długiego procesu kruszenia okowów - sumą cząstkowych kapitulacji, dodawanych do podstawowego przełomu: odstawienia erotomanii. Potrzebne są nam w rozwoju i silne ciosy, które robią wyłom, i rosnąca samoświadomość. Życie ciągle przynosi nam okazje do ogłaszania bezsilności i wyrzekania się samowoli. Żadnego z tych aktów pokory nie reżyserujemy sami; potrzebne nam są zdarzenia świata, gdyż to one je prowokują. Dopóki więc obraca nas wir trzeźwego życia, mamy tysiące okazji, by kruszyć nasze okowy.
- Czy zachowując abstynencję od erotomanii, stale rezygnuję z mojej „wszechmocy”, lub może pozwalam chorobie zasklepiać z powrotem każdy wyłom w mojej twierdzy? Czy jestem wdzięczny za ciągle nowe okazje do ogłaszania kapitulacji?
- Modlę się, abym skruszył moje kajdany za życia. Modlę się, aby wstrząsy, iluminacje i rosnąca świadomość burzyły mury mojej twierdzy. Modlę się, abym zamiast starać się zza nich władać - Tobie, Boże, oddawał władzę nade mną.
- Tu i teraz: Rezygnuję z wszelkich aktów własnej „wszechmocy” i samowoli. Zamiast władać światem zza murów mojej twierdzy, Bogu oddaję władzę nade mną, by pomógł mi za życia skruszyć moje kajdany.
+# 4 stycznia
+
+> Jeśli nie skruszysz swych kajdanów póki żyjesz, jakąż nadzieję możesz mieć na to po śmierci? (Kabir)
+
+Przebudzenie duchowe to rezygnacja z własnej wszechmocy. Na ogół proces ten dokonuje się powoli, drogą kolejnych wyłomów w murach naszej twierdzy, zza których staramy się władać światem. Może jednak przyjść do nas jako nagła, druzgocząca iluminacja, zostawiając nas odmienionych i - o dziwo - pełnych spokoju i wiary. Niezależnie od tego w jaki sposób przychodzi do nas przebudzenie, jest ono początkiem długiego procesu kruszenia okowów - sumą cząstkowych kapitulacji, dodawanych do podstawowego przełomu: odstawienia uzależnienia od seksu i miłości. Potrzebne są nam w rozwoju silne ciosy, które robią wyłom i rosnąca samoświadomość. Życie ciągle przynosi nam okazje do ogłaszania bezsilności i wyrzekania się samowoli. Żadnego z tych aktów pokory nie reżyserujemy sami, potrzebne nam są zdarzenia świata, gdyż to one je prowokują. Dopóki więc obraca nas wir trzeźwego życia, mamy tysiące okazji, by kruszyć nasze okowy.
+
+- Czy zachowując abstynencję od uzależnienia od seksu i miłości, stale rezygnuję z mojej „wszechmocy”, czy raczej pozwalam chorobie zasklepiać z powrotem każdy wyłom w mojej twierdzy?
+- Czy jestem wdzięczny za kolejne nowe okazje do ogłaszania kapitulacji?
+
+- Modlę się, abym skruszył moje kajdany za życia.
+- Modlę się, aby wstrząsy, iluminacje i rosnąca świadomość burzyły mury mojej twierdzy.
+- Modlę się, abym zamiast starać się zza nich władać - Tobie, Boże, oddawał władzę nade mną.
+
+Tu i teraz: Rezygnuję z wszelkich aktów własnej „wszechmocy” i samowoli. Zamiast władać światem zza murów mojej twierdzy, Bogu oddaję władzę nade mną, by pomógł mi za życia skruszyć moje kajdany.
