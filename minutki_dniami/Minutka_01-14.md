@@ -1,7 +1,14 @@
-14 stycznia
 
-O Bogu można mówić językiem teologii, ale też i językiem własnych przeżyć. (x. Jan Twardowski)
- Mówienie o Bogu językiem teologii, jest jak opisywanie drzewa, którego nie widzimy. Gdy jednak zaczynamy mówić językiem własnych przeżyć, sami stajemy się drzewem - zaczynamy żyć i doświadczać wzrostu. Nie opowiadamy teorii, jak to jest rosnąć w trzeźwości, ale sami stajemy się wzrostem - godnym i prawym życiem, zakorzenionym w naszych przeszłych doświadczeniach. Uznajemy bezsilność wobec erotomanii i swój upadek. Uznajemy potrzebę Siły Wyższej i ratunku. Powierzamy swoją wolę i życie Bogu. Robimy moralny obrachunek i wyznajemy go. Prosimy Boga o pomoc w usuwaniu wad charakteru. Naprawiamy wyrządzone krzywdy i badamy swoje bieżące funkcjonowanie, stosując zasady SLAA we wszystkich dziedzinach swojego życia. Modlimy się, medytujemy i niesiemy to posłanie innym. Żyjąc w ten sposób, całym sobą świadczymy o doznanym duchowym przebudzeniu. Obecne w nas, a nie opisywane, pociąga innych za nami.
- Czy mówię o działaniu Boga językiem własnych doświadczeń, a może teoretyzuję i strugam uczonego? Czy jestem wdzięczny SLAA, że największym bogactwem uczyniło moje dawne przeżycia?
- Modlę się, abym nie tyle opisywał wzrost, ile sam był wzrostem. Modlę się, abym nie tyle mówił o życiu, ile żył i był trzeźwy. Modlę się, abyś uwalniał mnie od słów i teorii, Boże, a obdarzał Sobą.
- Tu i teraz: Zakorzeniam się w moich doświadczeniach, dzieląc się nimi z innymi ludźmi. Osadzony w glebie własnych przeżyć, odnajduję w sobie pędy duchowego wzrostu - staję się nim i niosę to posłanie dalej.
+# 14 stycznia
+
+> O Bogu można mówić językiem teologii, ale też i językiem własnych przeżyć. (ks. Jan Twardowski)
+
+Mówienie o Bogu językiem teologii, jest jak opisywanie drzewa, którego nie widzimy. Gdy jednak zaczynamy mówić językiem własnych przeżyć, sami stajemy się drzewem - zaczynamy żyć i doświadczać wzrostu. Nie opowiadamy teorii, jak to jest rosnąć w trzeźwości, ale sami stajemy się wzrostem - godnym i prawym życiem, zakorzenionym w naszych przeszłych doświadczeniach. Uznajemy bezsilność wobec uzależnienia od seksu i miłości i swój upadek. Uznajemy potrzebę Siły Wyższej i ratunku. Powierzamy swoją wolę i życie Bogu. Robimy moralny obrachunek i wyznajemy go. Prosimy Boga o pomoc w usuwaniu wad charakteru. Naprawiamy wyrządzone krzywdy i badamy swoje bieżące funkcjonowanie, stosując zasady SLAA we wszystkich dziedzinach swojego życia. Modlimy się, medytujemy i niesiemy to posłanie innym. Żyjąc w ten sposób, całym sobą świadczymy o doznanym duchowym przebudzeniu. Obecne w nas, a nie opisywane, pociąga innych za nami.
+
+- Czy mówię o działaniu Boga językiem własnych doświadczeń, a może teoretyzuję i strugam uczonego?
+- Czy jestem wdzięczny SLAA, że największym bogactwem uczyniło moje dawne przeżycia?
+
+- Modlę się, abym nie tyle opisywał wzrost, ile sam był wzrostem.
+- Modlę się, abym nie tyle mówił o życiu, ile żył i był trzeźwy.- Modlę się, abyś uwalniał mnie od słów i teorii, Boże, a obdarzał Sobą.
+
+Tu i teraz: Zakorzeniam się w moich doświadczeniach, dzieląc się nimi z innymi ludźmi. Osadzony w glebie własnych przeżyć, odnajduję w sobie pędy duchowego wzrostu - staję się nim i niosę to posłanie dalej.
