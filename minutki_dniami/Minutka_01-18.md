@@ -1,8 +1,15 @@
-18 stycznia
 
-Nic nie jest dla człowieka bardziej nieznośne, niż pozostawać w niezmąconym spokoju.
-(Blaise Pascal)
- Dzięki trzeźwości, jaką zdobywamy w SLAA, nasze zmienia się w rejs po głębokich, spokojnych wodach. Za nami zostają burzliwe katarakty nałogu, które jakże kontrastują z dzisiejszą harmonią. Rodzi się w nas niepokojące uczucie, jakby „złowrogość” ciszy - tak bardzo bowiem przywykliśmy do dramatów i karuzeli emocji. Spostrzeżenie, iż od długiego czasu nie zdarzyło się nic złego, budzi irracjonalny lęk, że zaraz musi nastąpić jakaś katastrofa. W uczciwe, ciche i dobre życie wkradają się wtedy napady paniki i nieznośnego poczucia bycia na nie swoim miejscu. Panika, jaką niesie niekiedy ten nowy, niezmącony spokój, prowadzi nas do tych miejsc duszy, gdzie nie wniknęła jeszcze Boża łaska i gdzie obwarowały się resztki uzależnienia. Dzięki medytacji staramy się oswoić i udomowić dawnego wroga: lęk przed ciszą i nieznoścne uczucie bycia nie na swoim miejscu, gdy zachowujemy trzeźwość. Trwając w niezmąconym pokoju znosimy linię frontu i poszerzamy swoje wewnętrzne, bezpieczne terytorium.
- Czy staram się trwać w niezmąconym spokoju, a może pędzi mnie nieznośna panika bycia na nie swoim miejscu? Czy jestem wdzięczny, że lęk wprowadzony w ciszę odsłania mi zaraz swoją przyczynę?
- Modlę się, abym zostawił za sobą katarakty nałogu i wypłynął na spokojne wody. Modlę się, abym trwał w niezmąconym spokoju i oswajał lęk bycia na nie swoim miejscu. Modlę się, aby koiła mnie Twoja cisza, Panie.
- Tu i teraz: Wszystko, czego nie przenika we mnie łaska Boża, nie znosi spokoju. Pozwalam, by lęk przed ciszą prowadził mnie do chorych miejsc duszy. Otaczam je łagodnością, oferując sobie zawarcie pokoju i przyjaźń.
+# 18 stycznia
+
+> Nic nie jest dla człowieka bardziej nieznośne, niż pozostawać w niezmąconym spokoju. (Blaise Pascal)
+
+Dzięki trzeźwości, jaką zdobywamy w SLAA, nasze zmienia się w rejs po głębokich, spokojnych wodach. Za nami zostają burzliwe katarakty nałogu, które jakże kontrastują z dzisiejszą harmonią. Rodzi się w nas niepokojące uczucie, jakby „złowrogość” ciszy - tak bardzo bowiem przywykliśmy do dramatów i karuzeli emocji. Spostrzeżenie, iż od długiego czasu nie zdarzyło się nic złego, budzi irracjonalny lęk, że zaraz musi nastąpić jakaś katastrofa. W uczciwe, ciche i dobre życie wkradają się wtedy napady paniki i nieznośnego poczucia bycia na nie swoim miejscu. Panika, jaką niesie niekiedy ten nowy, niezmącony spokój, prowadzi nas do tych miejsc duszy, gdzie nie wniknęła jeszcze Boża łaska i gdzie obwarowały się resztki uzależnienia. Dzięki medytacji staramy się oswoić i udomowić dawnego wroga: lęk przed ciszą i nieznoścne uczucie bycia nie na swoim miejscu, gdy zachowujemy trzeźwość. Trwając w niezmąconym pokoju znosimy linię frontu i poszerzamy swoje wewnętrzne, bezpieczne terytorium.
+
+- Czy staram się trwać w niezmąconym spokoju, a może pędzi mnie nieznośna panika bycia na nie swoim miejscu?
+- Czy jestem wdzięczny, że lęk wprowadzony w ciszę odsłania mi zaraz swoją przyczynę?
+
+- Modlę się, abym zostawił za sobą katarakty nałogu i wypłynął na spokojne wody.
+- Modlę się, abym trwał w niezmąconym spokoju i oswajał lęk bycia na nie swoim miejscu.
+- Modlę się, aby koiła mnie Twoja cisza, Panie.
+
+Tu i teraz: Wszystko, czego nie przenika we mnie łaska Boża, nie znosi spokoju. Pozwalam, by lęk przed ciszą prowadził mnie do chorych miejsc duszy. Otaczam je łagodnością, oferując sobie zawarcie pokoju i przyjaźń.
