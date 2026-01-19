@@ -1,8 +1,15 @@
-20 stycznia
 
-W sercu jest życie, dlatego w nim powinniśmy starać się żyć.
-(Teofan Więzień)
- Inteligencja pozwala wiele mówić o Bogu, ale to serce pozwala do Niego dotrzeć. Wszystkie nasze działania, jeśli mają służyć wzrostowi duchowemu, muszą mieć swoje „centrum dowodzenia” w trzeźwym sercu. Modlitwa, gdy tam dotrze, staje się drzwiami do zjednoczenia z Najwyższym. Dzięki SLAA sercem zanurzamy się w Bożej miłości, by ogarnęła nas swoim działaniem. Istota programu i nasze niesienia posłania także skupia się w sercu. Informacje na temat erotomanii mogą może opisać nam problem, ale to dopiero żywe doświadczenia innych anonimowych erotomanów wiodą nas do rozwiązania go przez duchowe przebudzenie. Intelekt bowiem stale ocenia i porównuje, rodząc podziały i labirynt dociekań. Tylko serce może wyczuć owo żywe poruszenie głębi, dzięki któremu utożsamiamy się na mityngach z innymi SLAA i odkrywamy własny problem. Identyfikacja bowiem rodzi się w słuchającym sercu, zaś my rodzimy się w nim na nowo dzięki identyfikacji.
- Czy utożsamiam się z SLAA i żyję w sercu, a może dalej filtruję wszystko przez głowę? Czy staram się być wdzięczny za serce, które nieraz tak boleśnie daje mi znać, że naprawdę zdrowieję?
- Modlę się, aby moje „centrum dowodzenia” opadło z głowy do serca. Modlę się, abym dzięki identyfikacji z innymi SLAA rodził się w moim sercu, a ono we mnie dzięki identyfikacji. Modlę się, abym poprzez serce napełniał me życie Twą miłością, Boże.
- Tu i teraz: Staram się żyć w moim sercu, które Bóg pomaga mi oczyszczać z erotomanii. W głębi serca utożsamiam się ze zdrowiejącymi SLAA i wspólnie z nimi dążę do celu.
+# 20 stycznia
+
+> W sercu jest życie, dlatego w nim powinniśmy starać się żyć. (Teofan Więzień)
+
+Inteligencja pozwala wiele mówić o Bogu, ale to serce pozwala do Niego dotrzeć. Wszystkie nasze działania, jeśli mają służyć wzrostowi duchowemu, muszą mieć swoje „centrum dowodzenia” w trzeźwym sercu. Modlitwa, gdy tam dotrze, staje się drzwiami do zjednoczenia z Najwyższym. Dzięki SLAA sercem zanurzamy się w Bożej miłości, by ogarnęła nas swoim działaniem. Istota programu i nasze niesienia posłania także skupia się w sercu. Informacje na temat uzależnienia od seksu i miłości mogą może opisać nam problem, ale to dopiero żywe doświadczenia innych anonimowych uzależnionych wiodą nas do rozwiązania go przez duchowe przebudzenie. Intelekt bowiem stale ocenia i porównuje, rodząc podziały i labirynt dociekań. Tylko serce może wyczuć owo żywe poruszenie głębi, dzięki któremu utożsamiamy się na mityngach z innymi SLAA i odkrywamy własny problem. Identyfikacja bowiem rodzi się w słuchającym sercu, zaś my rodzimy się w nim na nowo dzięki identyfikacji.
+
+- Czy utożsamiam się z SLAA i żyję w sercu, a może dalej filtruję wszystko przez głowę?
+- Czy staram się być wdzięczny za serce, które nieraz tak boleśnie daje mi znać, że naprawdę zdrowieję?
+
+- Modlę się, aby moje „centrum dowodzenia” opadło z głowy do serca.
+- Modlę się, abym dzięki identyfikacji z innymi SLAA rodził się w moim sercu, a ono we mnie dzięki identyfikacji.
+- Modlę się, abym poprzez serce napełniał me życie Twą miłością, Boże.
+
+Tu i teraz: Staram się żyć w moim sercu, które Bóg pomaga mi oczyszczać z uzależnienia od seksu i miłości. W głębi serca utożsamiam się ze zdrowiejącymi SLAA i wspólnie z nimi dążę do celu.
