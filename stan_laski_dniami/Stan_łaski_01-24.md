@@ -1,6 +1,10 @@
-24 stycznia
 
-MAGICZNE MYŚLENIE
- Moje najwcześniejsze wspomnienia [...] są związane z [...] marzeniem o tej lub tamtej szkolnej koleżance, która uratowałaby mi życie. [...] i ogarniało mnie poczucie magii, kiedy fantazjowałem o miłości. Nagle życiowy chaos jakby się zatrzymywał i fantazje wystarczały do usuwania cierpienia na jakiś czas. — Tekst Bazowy SLAA, str. 252
- Tak bardzo chciałem uwierzyć, że dostanę to, czego chcę od osoby, na której punkcie miałem obsesję, że zamieniałem ją w wiecznie nieuchwytnego jednorożca. Myślałem, że mój mózg jest tak potężny – że jeśli wystarczająco o tym pomyślę, mogę zmienić rzeczywistość. Kiedyś słyszałem, jak spiker powiedział: „Próbujemy zarządzać naszym myśleniem i kontrolować je”. Gubię się w magicznym myśleniu, zwłaszcza gdy nie radzę sobie z rzeczywistością mojego życia lub gdy desperacko czegoś pragnę. Pewnie dlatego gry wideo są tak popularne. Ale nikt nie wstaje po zabiciu go w prawdziwym życiu. To jest niebezpieczeństwo zagubienia się w świecie fantazji. Czasami nawet nie wiem, że to robię, ponieważ gdy jest w to zaangażowana inna osoba, może wyglądać to na rzeczywistość. Mój obiekt i ja myśleliśmy, że jesteśmy zakochani i będziemy wieść wymarzone życie. Jednak w czasie kiedy skupialiśmy się na fantazji, nie zauważaliśmy całkowitego zniszczenia jakie powodowaliśmy wśród otaczających nas ludzi.
- Dziś poprzez modlitwę i medytację żyję w rzeczywistości.
+# 24 stycznia
+
+## Myślenie magiczne
+
+> Moje najwcześniejsze wspomnienia (...) związane są z (...) marzeniem o tej lub tamtej szkolnej koleżance, która uratowałaby mi życie. (...) i ogarniało mnie poczucie magii, kiedy fantazjowałem o miłości. Nagle życiowy chaos jakby się zatrzymywał i fantazje wystarczały do usuwania cierpienia na jakiś czas. — Tekst Bazowy SLAA, str. 252
+
+Tak bardzo chciałem uwierzyć, że dostanę to, czego chcę od osoby, na której punkcie miałem obsesję, że zamieniałem ją w wiecznie nieuchwytnego jednorożca. Myślałem, że mój mózg jest tak potężny – że jeśli wystarczająco o tym pomyślę, mogę zmienić rzeczywistość. Kiedyś słyszałem, jak spiker powiedział: „Próbujemy zarządzać naszym myśleniem i kontrolować je”. Gubię się w magicznym myśleniu, zwłaszcza gdy nie radzę sobie z rzeczywistością mojego życia lub gdy desperacko czegoś pragnę. Pewnie dlatego gry wideo są tak popularne. Ale nikt nie wstaje po zabiciu go w prawdziwym życiu. To jest niebezpieczeństwo zagubienia się w świecie fantazji. Czasami nawet nie wiem, że to robię, ponieważ gdy jest w to zaangażowana inna osoba, może wyglądać to na rzeczywistość. Mój obiekt i ja myśleliśmy, że jesteśmy zakochani i będziemy wieść wymarzone życie. Jednak w czasie kiedy skupialiśmy się na fantazji, nie zauważaliśmy całkowitego zniszczenia jakie powodowaliśmy wśród otaczających nas ludzi.
+
+Dziś poprzez modlitwę i medytację żyję w rzeczywistości.
