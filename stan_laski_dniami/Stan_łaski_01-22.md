@@ -1,6 +1,10 @@
-22 stycznia
 
-POKORA
- W pokorze zrozumieliśmy, że jesteśmy tylko proszeni o to, aby zejść Bogu z drogi, aby – przy naszej współpracy – praca Boga mogła zostać wykonana w naszym życiu. — Tekst Bazowy SLAA, str. 116
- Myślałem, że pokora oznacza poniżanie się przed innymi I tak naprawdę nie byłem do niej przekonany. Jednak uczestnicy programu twierdzili, że jest to uczciwa ocena samego siebie i swojego miejsca w życiu – bycie jednym pośród wielu – a nie bycie pod ziemią poniżej wszystkich innych lub wysoko na niebie ponad wszystkimi. Kiedy stawiamy siebie w gorszym świetle mówimy, że Siła Wyższa popełniła błąd, a kiedy dążymy do sukcesu i bogactwa ignorujemy nasz cel (pełnienie służby). Przed moim duchowym doświadczeniem wynikającym z Dwunastu Kroków, myślałem, że Bóg chce mnie dopaść lub po prostu jest nieudolny, jeśli chodzi o moje życie. Nie robił tego dobrze, więc musiałem przejąć kontrolę. Nie mogłem zejść Bogu z drogi. Chciałem tego, czego chciałem i wtedy kiedy tego chciałem. Wszystkie Dwanaście Kroków, wykonane po kolei, pokazały mi, jak współpracować i wykonywać Bożą pracę. Nie zawsze jestem chętny, bo moje nałogowe głosy szepczą mi, że jestem ponad to. Jednakże kiedy idę na mityng, przypominam sobie, gdzie potencjalnie mogę się znależć i że Kroki działają w moim życiu. Muszę przekazywać to innym, aby to zachować.
- Modlę się dzisiaj o przewodnictwo i gotowość do pełnienia woli mojej Siły Wyższej.
+# 22 stycznia
+
+## Pokora
+
+> W pokorze zrozumieliśmy, że jesteśmy tylko proszeni o to, aby zejść Bogu z drogi, aby – przy naszej współpracy – praca Boga mogła zostać wykonana w naszym życiu. — Tekst Bazowy SLAA, str. 116
+
+Myślałem, że pokora oznacza poniżanie się przed innymi I tak naprawdę nie byłem do niej przekonany. Jednak uczestnicy programu twierdzili, że jest to uczciwa ocena samego siebie i swojego miejsca w życiu – bycie jednym pośród wielu – a nie bycie pod ziemią poniżej wszystkich innych lub wysoko na niebie ponad wszystkimi. Kiedy stawiamy siebie w gorszym świetle mówimy, że Siła Wyższa popełniła błąd, a kiedy dążymy do sukcesu i bogactwa ignorujemy nasz cel (pełnienie służby). Przed moim duchowym doświadczeniem wynikającym z Dwunastu Kroków, myślałem, że Bóg chce mnie dopaść lub po prostu jest nieudolny, jeśli chodzi o moje życie. Nie robił tego dobrze, więc musiałem przejąć kontrolę. Nie mogłem zejść Bogu z drogi. Chciałem tego, czego chciałem i wtedy kiedy tego chciałem. Wszystkie Dwanaście Kroków, wykonane po kolei, pokazały mi, jak współpracować i wykonywać Bożą pracę. Nie zawsze jestem chętny, bo moje nałogowe głosy szepczą mi, że jestem ponad to. Jednakże kiedy idę na mityng, przypominam sobie, gdzie potencjalnie mogę się znależć i że Kroki działają w moim życiu. Muszę przekazywać to innym, aby to zachować.
+
+Modlę się dzisiaj o przewodnictwo i gotowość do pełnienia woli mojej Siły Wyższej.
