@@ -1,7 +1,15 @@
-26 stycznia
 
-Ręka wyciągnięta w postawie błagalnej uzyskuje to, czego nie może ręka podtrzymująca czoło w zamyśleniu. (o. Jose Calveras)
- Gdy praktykujemy modlitwę błagalną, zaczynamy odbierać głosy płynące z naszego wnętrza - głosy, których nieraz wolelibyśmy nie słyszeć. Możemy czuć - i zwykle czujemy - rosnący opór przed taką modlitwą, bo nie jest przyjemna prawda o naszej bezsilności, pysze, lenistwie, chwiejności, lubieżności, tchórzostwie, chciwości, pożądliwości, racjonalizowaniu, ukochaniu złudzeń, wygodnictwie, skłonności do uraz, samowoli i uporze. Słuchanie tych głosów psuje nam komfort życia w dawny sposób. Wizja utraty naszych gratyfikacji wcale nam się nie podoba. Nie chcemy rozstawać się z dawnym sobą, tak jak nie chcemy umierać. Czujemy, że to zadanie nas przerasta. Możemy błagać Boga o konieczną determinację, siłę i odwagę do tak gruntownej przemiany, zamiast filozoficznie rozmyślać nad naszym upadkiem. Możemy prosić Go o gotowość i odwagę ofiarowania Mu całego siebie. Możemy wyciągać do Niego psute ręce, a wtedy uzdalnia nas On do każdego bohaterstwa jakiego wymaga odstawienie erotomanii i przemiana duchowa.
- Czy proszę Boga o determinację i siłę do gruntownej przemiany, a może boję się zaryzykować utratę dotychczasowego siebie? Czy jestem wdzięczny, że Bóg naprawdę może mi to wszystko dać?
- Modlę się, abym rejestrował głosy płynące z mojego wnętrza. Modlę się, abym było gotów rozstawać się z dotychczasowym sobą i uzależniającymi gratyfikacjami. Modlę się, abyś w to miejsce dawał mi Siebie, Panie.
+# 26 stycznia
+
+> Ręka wyciągnięta w postawie błagalnej uzyskuje to, czego nie może ręka podtrzymująca czoło w zamyśleniu. (o. Jose Calveras)
+
+Gdy praktykujemy modlitwę błagalną, zaczynamy odbierać głosy płynące z naszego wnętrza - głosy, których nieraz wolelibyśmy nie słyszeć. Możemy czuć - i zwykle czujemy - rosnący opór przed taką modlitwą, bo nie jest przyjemna prawda o naszej bezsilności, pysze, lenistwie, chwiejności, lubieżności, tchórzostwie, chciwości, pożądliwości, racjonalizowaniu, ukochaniu złudzeń, wygodnictwie, skłonności do uraz, samowoli i uporze. Słuchanie tych głosów psuje nam komfort życia w dawny sposób. Wizja utraty naszych gratyfikacji wcale nam się nie podoba. Nie chcemy rozstawać się z dawnym sobą, tak jak nie chcemy umierać. Czujemy, że to zadanie nas przerasta. Możemy błagać Boga o konieczną determinację, siłę i odwagę do tak gruntownej przemiany, zamiast filozoficznie rozmyślać nad naszym upadkiem. Możemy prosić Go o gotowość i odwagę ofiarowania Mu całego siebie. Możemy wyciągać do Niego psute ręce, a wtedy uzdalnia nas On do każdego bohaterstwa jakiego wymaga odstawienie uzależnienia do seksu i miłości i przemiana duchowa.
+
+- Czy proszę Boga o determinację i siłę do gruntownej przemiany, a może boję się zaryzykować utratę dotychczasowego siebie?
+- Czy jestem wdzięczny, że Bóg naprawdę może mi to wszystko dać?
+
+- Modlę się, abym rejestrował głosy płynące z mojego wnętrza.
+- Modlę się, abym było gotów rozstawać się z dotychczasowym sobą i uzależniającymi gratyfikacjami.
+- Modlę się, abyś w to miejsce dawał mi Siebie, Panie.
+
 Tu i teraz: Oddaję gratyfikacje, które mnie uzależniają i proszę Boga, by zapełniał ich miejsce. Modlę się, by dawał mi wszystko, co mnie do Niego prowadzi i odbierał wszystko, co mnie od Niego oddala.
