@@ -8,5 +8,8 @@ Modlę się i medytuję. Modlę się, ponieważ to ja potrzebuję Boga. Medytuj�
 - Czy, zwłaszcza w obliczu oschłości i znużenia, nie ustaję w codziennej modlitwie i medytacji, a może czekam na lepszy dzień lub przypływ chęci?
 - Czy jestem wdzięczny za trudności i regularnie proszę o wytrwałość?
 
-- Kiedy się modlę, osuwam się cicho na kolana - w odosobnieniu i z poświęceniem. Kiedy medytuję, wznoszę ku górze serce i zanurzam się w Twojej doskonałości, Boże. Kiedy się modlę i medytuję - łączę się z Tobą na wieki, mój Panie.
- Tu i teraz: Oto, czego potrzeba modlitwie: drzewa cierpliwości. Oto, czego potrzeba medytacji: kwiatów wdzięczności. Oto, czego potrzeba mi: korzenia wytrwałości w modlitwie i medytacji, abym mógł wydać zdrowy owoc.
+- Kiedy się modlę, osuwam się cicho na kolana - w odosobnieniu i z poświęceniem.
+- Kiedy medytuję, wznoszę ku górze serce i zanurzam się w Twojej doskonałości, Boże.
+- Kiedy się modlę i medytuję - łączę się z Tobą na wieki, mój Panie.
+
+Tu i teraz: Oto, czego potrzeba modlitwie: drzewa cierpliwości. Oto, czego potrzeba medytacji: kwiatów wdzięczności. Oto, czego potrzeba mi: korzenia wytrwałości w modlitwie i medytacji, abym mógł wydać zdrowy owoc.
