@@ -1,7 +1,16 @@
-16 lutego
 
-Najlepszą rekomendacją jest nie oglądanie się na innych, lecz zakasanie rękawów i pełnienie swej służby. (Lao Tsy)
-Nikt nam nie podarował Wspólnoty SLAA. Z nieba „spadła” tylko idea i to my, zdrowiejący na ziemi erotomani, własnymi rękami wcielamy ją w życie. Sami przygotowujemy, opłacamy i sprzątamy sale, prowadzimy nasze mityngi, służymy w grupie, organizujemy informację i punkty kontaktowe, sieć służb i biura, konferencje i zloty, rekolekcje SLAA i warsztaty, wydajemy naszą literaturę i rozprowadzamy ją, odwiedzamy więzienia i szpitale, niosąc tam nasze posłanie i nadzieję. Zawsze znajdzie się coś jeszcze do zrobienia. ... Służenie w SLAA to moja pokora i odpowiedzialność za łódź ratunkową, którą płynę. Nie oglądam się na innych, lecz sam zakasuję rękawy. Zaczynam od przygotowywania i porządków w sali, uczenia się anonimowości, wprowadzania nowicjuszy, i dalej, poprzez funkcje w grupie, kolportaż, dyżury przy telefonie, korespondencję, staję się tzw. mężem zaufania i dojrzewam do prac w zbiorowym sumieniu SLAA. Gdy to wszystko honorowo robię, nie zauważam nawet, jak doskonali się moja pokora.
- Czy zakasuję rękawy i zabieram się do pracy W SLAA, a może oglądam się na innych i przychodzę tylko na gotowe? Czy jestem wdzięczny, że pokora buduje się we mnie uczynkami służby, gdy tego nawet nie zauważam?
- Modlę się, abym brał odpowiedzialność za łódź ratunkową SLAA, która mnie ocala. Modlę się, aby wdzięczność była matką mojego pełnienia służb. Modlę się, aby ubywało mi pychy i ego, a przybywało Ciebie, Boże.
- Tu i teraz: Nie oglądam się na innych - sam zakasuję rękawy do pracy w SLAA. Nie oglądam się na siebie - przestaję obrastać w zasługi. Służąc z pokorą, przestaję ją nawet zauważać, a wtedy staje się ona dojrzała.
+# 16 lutego
+
+> Najlepszą rekomendacją jest nie oglądanie się na innych, lecz zakasanie rękawów i pełnienie swej służby. (Lao Tsy)
+
+Nikt nam nie podarował Wspólnoty SLAA. Z nieba „spadła” tylko idea i to my, zdrowiejący na ziemi uzależnieni od seksu i miłości, własnymi rękami wcielamy ją w życie. Sami przygotowujemy, opłacamy i sprzątamy sale, prowadzimy nasze mityngi, służymy w grupie, organizujemy informację i punkty kontaktowe, sieć służb i biura, konferencje i zloty, rekolekcje SLAA i warsztaty, wydajemy naszą literaturę i rozprowadzamy ją, odwiedzamy więzienia i szpitale, niosąc tam nasze posłanie i nadzieję. Zawsze znajdzie się coś jeszcze do zrobienia. 
+Służenie w SLAA to moja pokora i odpowiedzialność za łódź ratunkową, którą płynę. Nie oglądam się na innych, lecz sam zakasuję rękawy. Zaczynam od przygotowywania i porządków w sali, uczenia się anonimowości, wprowadzania nowicjuszy i dalej, poprzez funkcje w grupie, kolportaż, dyżury przy telefonie, korespondencję, staję się tzw. mężem zaufania i dojrzewam do prac w zbiorowym sumieniu SLAA. Gdy to wszystko honorowo robię, nie zauważam nawet, jak doskonali się moja pokora.
+
+- Czy zakasuję rękawy i zabieram się do pracy W SLAA, a może oglądam się na innych i przychodzę tylko na gotowe?
+- Czy jestem wdzięczny, że pokora buduje się we mnie uczynkami służby, gdy tego nawet nie zauważam?
+
+- Modlę się, abym brał odpowiedzialność za łódź ratunkową SLAA, która mnie ocala.
+- Modlę się, aby wdzięczność była matką mojego pełnienia służb.
+- Modlę się, aby ubywało mi pychy i ego, a przybywało Ciebie, Boże.
+
+Tu i teraz: Nie oglądam się na innych - sam zakasuję rękawy do pracy w SLAA. Nie oglądam się na siebie - przestaję obrastać w zasługi. Służąc z pokorą, przestaję ją nawet zauważać, a wtedy staje się ona dojrzała.
