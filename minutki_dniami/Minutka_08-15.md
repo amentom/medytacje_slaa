@@ -12,4 +12,4 @@ W porównaniu choćby z siłami przyrody - burzą, przypływami, wichrem, trzęs
 - Modlę się, abym chciał robić rzeczy „niepraktyczne” i takie, których prawie się nie zauważa.
 - Modlę się, aby moje czyny były zgodne z wolą Siły Wyższej.
 
-Tu i teraz: Wytrwałym robieniem rzeczy „niepraktycznych” i mało ważnych tworzę moją trzeźwą rzeczywistość. Zmieniając siebie według sugestii SLAA, kształtuję moje jutro tak, jak je widzi Siłą Wyższa.
+Tu i teraz: Wytrwałym robieniem rzeczy „niepraktycznych” i mało ważnych tworzę moją trzeźwą rzeczywistość. Zmieniając siebie według sugestii SLAA, kształtuję moje jutro tak, jak je widzi Siła Wyższa.
